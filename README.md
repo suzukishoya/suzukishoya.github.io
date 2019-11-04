@@ -1,0 +1,1 @@
+# suzukishoya.github.io
